@@ -15,7 +15,7 @@ RoboForex specialists offered exhibition guests free lessons, which covered hot 
 
 Please access the following URL to get more information about RoboForex Stocks: 
       
-     https://stock.roboforex.com/
+     (https://stock.roboforex.com/)
 
 The website is the property of RoboForex (CY) Ltd.
 --------------------------------------------------
